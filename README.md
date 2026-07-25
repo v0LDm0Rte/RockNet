@@ -83,7 +83,7 @@ This tool is for educational and authorized testing only. Use only on systems yo
 📞 Contact
 
 · GitHub: v0LDm0Rte
-· Email: v0LDm0Rte@proton.me
+· Email: v0ldm0rte@onionmail.org
 
 ---
 
